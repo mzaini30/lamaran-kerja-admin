@@ -1,5 +1,7 @@
 # Curriculum Vitae (CV)
 
+![](https://i0.wp.com/cdn.imgchest.com/files/2082ca9d5bf3.jpg?w=300&h=400&crop=1)
+
 ## Informasi Pribadi
 
 **Nama Lengkap:** Muhammad Zaini  
